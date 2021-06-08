@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Malachi {she/they}
+- 👀 I’m interested in mechanical keyboards and 3d modeling
